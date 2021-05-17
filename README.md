@@ -1,4 +1,4 @@
-# canonprinter
+# Canon Ij Start Printer
 ij.start.canon is the official webpage to download, install canon printer drivers. Visit canon website - ij.start.canon for more details.
 Ij.start.canon - Connect With IJ Start Canon
 Use ij.startcanon to set up your Canon product. Get inkjet Canon printer and scanner support here. Canon ij printer is a complete solution for multiple works that you can easily learn to set up from ij.start.canon and get a better experience. This is the official online support site that provides you Canon products’ online manuals, function information, and more. What’s more at the ij.start.canon site is download and installation steps for Canon ij setup that is required for the complete Canon set up process. So check out the more steps below.
